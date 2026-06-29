@@ -1,4 +1,4 @@
-# 
+# Actualizado liquidity sniper bot plugins para Mac OS | Élite liquidity sniper bot plugins para PC Windows. Con gestión de margen y seguimiento de precios — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
